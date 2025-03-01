@@ -39,7 +39,7 @@ https://meiridasaiw.pages.dev - MRDS每日大赛在线观看 | 吃瓜爆料&黑�
 
 https://iheiliaoshe.pages.dev - 黑料不打烊吃瓜爆料网 | 黑料社&黑料社区-今日吃瓜热点资讯
 
-https://mitaoshipinwang.pages.dev - 蜜桃视频、红桃视频、羞羞视频、樱桃视频、香蕉视频：成人网站红桃影视全解析
+https://mitaoshipinwang.pages.dev - 蜜桃视频、红桃视频、羞羞视频、樱桃视频、香蕉视频：成人全解析
 
 https://mogushipinwang.pages.dev - 蘑菇视频与妖精视频SSS联合推出羞羞视频专区，蘑菇TV官网全新上线
 
